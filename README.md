@@ -1,0 +1,2 @@
+# premium-commedia-001-commedia-dell-arte-character-m
+Tired of juggling scattered notes, historical references, and half-finished sketches for your commedia dell'arte mask designs?  This Notion template brings order to your creative process, centralizing every phase from archetype research to final mask rendering. It eliminates the chaos of disorganized ideas, so you can focus on crafting authentic, e
